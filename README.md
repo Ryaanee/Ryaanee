@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Ryaanee
+- 👀 I’m interested in my friends lol
+- 🌱 I’m currently learning in ....(i forgot)
+- 💞️ I’m looking to collaborate on: idk
+- 📫 How to reach me: ryaanee2711@gmail.com
+- 🍫 What your favorite food: Chocolate!
